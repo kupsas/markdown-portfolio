@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+Check out my LinkedIn profile [here] (https://www.linkedin.com/in/sai-sashank-kuppa-b207a2146/) 
